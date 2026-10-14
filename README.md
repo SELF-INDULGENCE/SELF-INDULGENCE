@@ -13,5 +13,5 @@
  [𝓐tabook](https://self-indulgent.atabook.org) 
 
  
-$${\color{#FFFF85}\text{they}}$$ ৴ $${\color{#FFF085}\text{them}}$$
+$${\color{#FFFF85}\text{𝒕𝒉𝒆𝒚}}$$ ৴ $${\color{#FFF085}\text{𝒕𝒉𝒆𝒎}}$$
 
