@@ -1,5 +1,4 @@
 
-<img src="https://i.postimg.cc/Kv5mZm7v/311-removebg-preview.png" alt="Divider Line" width="100%" height="auto" />
 
 
 <div align="center">
