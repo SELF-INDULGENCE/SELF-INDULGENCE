@@ -38,5 +38,5 @@
 <details>
   <summary>余分な</summary>
 
-  im a masochist, i act on it sometimes without knowing. so please if youre uncomfortable tell me, or just don't int if you're already weirded out. and i'm a multifandom ! you'll see me most above the bakery or bllk area, don't be shy to reach out / c+h . i don't really tell infos about myself, you'll have to get to know me 
+  im a masochist, i act on it sometimes without knowing. so please if youre uncomfortable tell me, or just don't int if you're already weirded out. and i'm multifandom ! you'll see me most above the bakery or bllk area, don't be shy to reach out / c+h . i don't really tell infos about myself, you'll have to get to know me 
   
