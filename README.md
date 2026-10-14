@@ -12,8 +12,6 @@
 
  [𝓐tabook](https://self-indulgent.atabook.org) 
 
-
-
-<div align="right">
+ 
 $${\color{FFFF85}\text{they}}$$ ৴ $${\color{FFF085}\text{them}}$$
 
