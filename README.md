@@ -13,3 +13,5 @@
  [𝓐tabook](https://self-indulgent.atabook.org) 
 
 
+$${\color{#791B2F}\text{-13 dni, homophobic, TOXIC nonsharers/yumes n problematic.}}$$
+
