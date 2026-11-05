@@ -19,7 +19,7 @@
 
 ㅤ
  
-  ㅤ $${\color{#79537E}\text{𝒕𝒉𝒆𝒚}}$$ ㅤㅤㅤㅤㅤㅤ $${\color{#FFAC8D}\text{𝒕𝒉𝒆𝒎}}$$ㅤ
+  ㅤ $${\color{#6C6C55}\text{𝒕𝒉𝒆𝒚}}$$ ㅤㅤㅤㅤㅤㅤ $${\color{#D8D8AA}\text{𝒕𝒉𝒆𝒎}}$$ㅤ
  
 <br>
 
