@@ -31,7 +31,7 @@
   
 
   
-   -13,ㅤ homophobic,ㅤ problematic,ㅤ  predators,ㅤsexist, ㅤracist,ㅤ insensitive,ㅤtoxic shippers,ㅤiwc 20+, ㅤㅤalso please avoid joking around me when i have an iwc/iwec at my name, i jst get reaaallly serious sometimes
+   -13,ㅤ homophobic,ㅤ problematic,ㅤ  predators,ㅤsexist, ㅤracist,ㅤ insensitive,ㅤtoxic shippers,ㅤiwc 20+, ㅤㅤalso please avoid joking around me when i have an iwc/iwec at my name, i jst get reaaallly serious sometimes, and I block freely. 
 
 </details>
 
