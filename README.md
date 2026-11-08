@@ -6,7 +6,7 @@
 
 
 
-<img src="https://i.postimg.cc/LsSvnDsC/Untitled40-20261109064413.png" width="90%" alt="Makoto Yuki" style="border-radius: 6px; border: 2px solid #00f5d4;"/>
+<img src="https://i.postimg.cc/LsSvnDsC/Untitled40-20261109064413.png" width="100%" alt="Makoto Yuki" style="border-radius: 6px; border: 2px solid #00f5d4;"/>
 
 <br><br>
 
