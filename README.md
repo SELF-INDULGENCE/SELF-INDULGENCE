@@ -6,7 +6,7 @@
 
 
 
-<img src="https://i.postimg.cc/q73f3PhK/lv-0-20261105222338.gif" width="90%" alt="Makoto Yuki" style="border-radius: 6px; border: 2px solid #00f5d4;"/>
+<img src="https://i.postimg.cc/LsSvnDsC/Untitled40-20261109064413.png" width="90%" alt="Makoto Yuki" style="border-radius: 6px; border: 2px solid #00f5d4;"/>
 
 <br><br>
 
@@ -19,7 +19,7 @@
 
 ㅤ
  
-  ㅤ $${\color{#6C6C55}\text{𝒕𝒉𝒆𝒚}}$$ ㅤㅤㅤㅤㅤㅤ $${\color{#D8D8AA}\text{𝒕𝒉𝒆𝒎}}$$ㅤ
+  ㅤ $${\color{#FBA6C1}\text{𝒕𝒉𝒆𝒚}}$$ ㅤㅤㅤㅤㅤㅤ $${\color{#FC7095}\text{𝒕𝒉𝒆𝒎}}$$ㅤ
  
 <br>
 
